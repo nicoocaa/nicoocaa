@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hey!! 👋<br>YNOV Bordeaux IT student in 2nd year 📚<br>I'm Nico, 19, from Bordeaux, SW France 🍷<br>I’m super into coding 💻, web development 🌐, AI 🤖, and cybersecurity 🔐.<br>Most of the stuff you’ll find here are school projects, but I’m hoping to drop some personal ones soon 🚀.<br>Oh, and I’m a big fan of sports too, especially surfing 🏄‍♂️ and skateboarding 🛹!
+Hey!! 👋<br>YNOV Bordeaux IT student in 3trd year 📚<br>I'm Nico, 20, from Bordeaux, SW France 🍷<br>I’m super into coding 💻, web development 🌐, AI 🤖, and cybersecurity 🔐.<br>Most of the stuff you’ll find here are school projects, but I’m hoping to drop some personal ones soon 🚀.<br>Oh, and I’m a big fan of sports too, especially surfing 🏄‍♂️ and skateboarding 🛹!
 
 
 ## 🌐 Socials:
